@@ -1,7 +1,7 @@
 # Bienvenue sur le site d'Elena David
 
 Acceder a mon site [https://elenadavid.github.io](https://elenadavid.github.io)
-tIs$^Ctv@MzHagOUqZy^lnDzd!OeYKLctIs$^CtvuMr!QdJmuMr!QdJmd!OeYKLctIs$^CtvD#xeCmPm@MzHagOUd!OeYKLctIs$^CtvqZy^lnDz$sPIXKmv
+Discord: [https://discord.gg/3ywRFk5kQD](https://discord.gg/3ywRFk5kQD)
 
 C’est lorsque j’avais 5 ans que j’ai commencé à écrire des scénarios en rébus, je ne savais pas écrire. En effet, j’ai toujours été passionnée par l’audiovisuel, c’est ce qui m’a amené à vouloir travailler dans ce domaine. C’est une vocation.  
 Aujourd’hui je suis étudiante en deuxième année, dans une école (Paris Ynov Campus) nous formant de manière polyvalente, j’ai donc pu acquérir des bases solides sur les logiciels Adobe Première Pro et Photoshop, mais également dans d’autres domaines (captation lumière, son etc).  
