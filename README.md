@@ -1,6 +1,6 @@
 # Bienvenue sur le site d'Elena David
 
-Acceder a mon site [https://elenadavid.github.io](https://elenadavid.github.io)
+Acceder a mon site [https://elenadavid.github.io](https://elenadavid.github.io)  
 Discord: [https://discord.gg/3ywRFk5kQD](https://discord.gg/3ywRFk5kQD)
 
 C’est lorsque j’avais 5 ans que j’ai commencé à écrire des scénarios en rébus, je ne savais pas écrire. En effet, j’ai toujours été passionnée par l’audiovisuel, c’est ce qui m’a amené à vouloir travailler dans ce domaine. C’est une vocation.  
